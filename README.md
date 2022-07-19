@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Georumo
+- 👋 你好，我是杰鲁莫。
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on nothing 
